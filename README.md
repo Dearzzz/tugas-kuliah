@@ -1,1 +1,1 @@
-# tugas-kuliah
+Tugas Pribadi Richard Kurnia
